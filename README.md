@@ -34,4 +34,3 @@ Not intended for children under 13.
 
 ## 7. Contact
 Email: [你的邮箱]
-# skinpathguide-privacy
